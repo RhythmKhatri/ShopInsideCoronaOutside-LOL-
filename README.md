@@ -1,0 +1,1 @@
+# ShopInsideCoronaOutside-LOL-
